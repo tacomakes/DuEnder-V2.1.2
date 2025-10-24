@@ -5,3 +5,8 @@ my second installment of my DuEnder project- two enders put together!!
 
 
 <img width="1248" height="759" alt="image" src="https://github.com/user-attachments/assets/c6625dc8-7abd-4ce8-bb52-eccc500b20a5" />
+
+download from printables!
+https://www.printables.com/model/1427095-duender-ender-3-pro
+boost me on makerworld!
+https://makerworld.com/en/models/1833592-duender-ender-3-pro
